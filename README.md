@@ -1,2 +1,2 @@
 # reinas-pepiadas
-Todo lo que tienes que saber acerca de las gloriosas arepas más ricas y suculentas de mi país; Venezuela.
+Everything you need to know about the glorious and most delicious arepa from my country; Venezuela.
